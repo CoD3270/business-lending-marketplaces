@@ -110,4 +110,4 @@ Speed depends on the program and the lending partner. Working capital and revenu
 
 ## Access Top Lending Marketplaces Through Single Application
 
-A lending marketplace turns weeks of separate applications into one short form and a set of real offers to compare. [iAdvance Now](https://www.iadvancenow.com) excels for small businesses seeking a top-rated lending marketplace, with 80+ lending partners, a 4.9/5 Trustpilot rating, and over $5 billion funded to help 30,000+ businesses grow. Choose the platform that fits your priorities, whether approval odds, speed, or funding size, and let one application do the work of many.
+A lending marketplace turns weeks of separate applications into one short form and a set of real offers to compare. Look for a large lending network, strong customer reviews, and a proven funding track record. Choose the platform that fits your priorities, whether approval odds, speed, or funding size, and let one application do the work of many.
